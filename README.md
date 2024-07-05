@@ -1,0 +1,1 @@
+# amaliyot4qisim
